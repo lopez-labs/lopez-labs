@@ -33,7 +33,7 @@ I'm passionate about cybersecurity and love utitilizing hands-on projects to gai
 
 ## 📫 Let's Connect!
 
-- [LinkedIn](www.linkedin.com/in/alec-lopez-045187196)  
+- [LinkedIn](https://www.linkedin.com/in/alec-lopez-045187196/)  
 - [Email](mailto:aleclopez13@yahoo.com)  
 
 ---
